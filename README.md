@@ -3,7 +3,7 @@ Paroles de la chanson
 (L'ultime nuance vue de l'intérieur
 Vivre cette chance pendant 24h) x2
 
-J'enverrai UN SPAM au STAFF en faisant les courses à LIDL
+J'enverrai UN COURRIER au PERSONNEL en faisant les courses à AUCHAN
 J'aiderai les enfants aux devoirs en sortant la quiche du four
 Avec eux je serai joyeuse, avec mon mec, femme fatale
 24h dans la peau d'une femme, je comprendrai la charge mentale
